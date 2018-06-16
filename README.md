@@ -1,1 +1,3 @@
 # NO-U
+
+HOI U BAKAS, IMA DIE (oof)
